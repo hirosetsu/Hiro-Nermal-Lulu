@@ -20,4 +20,4 @@ Ready to make your reservation? The Reservations section is your one-stop-shop f
 
 Thank you for choosing SixWorld Adventures, Inc. We look forward to being a part of your next great adventure!
 
-Happy Exploring! 🌍✨
+Happy Exploring!
